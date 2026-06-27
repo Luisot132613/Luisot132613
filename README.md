@@ -15,8 +15,8 @@ Minhas ferramentas favoritas são Python, Jupiter, Microsoft Power Platforms, No
 ## Fatos interessantes:
 
   - Adoro criar/acompanhar artes 🎨
-  - Coleciono vinils 💽
-  - Leio bastantes livros 📖
+  - Coleciono vinis 💽
+  - Curto livros SCI-FI 📖
   - Pulp Fiction, Hajime no Ippo e Cowboy Bebop são minhas obras preferidas 📽️
 
 <!--
